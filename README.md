@@ -1,0 +1,1 @@
+# MeditaSer App contraseña
